@@ -1,1 +1,1 @@
-# Mandazitwo
+# Mandazi
